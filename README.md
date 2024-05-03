@@ -1,1 +1,1 @@
-interested in defi
+interested in crypto
